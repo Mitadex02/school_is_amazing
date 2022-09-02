@@ -1,1 +1,1 @@
-# school_is_amazing
+# ready_to_be_removed
